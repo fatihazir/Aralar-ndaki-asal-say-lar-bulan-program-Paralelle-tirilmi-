@@ -1,1 +1,1 @@
-# Aralar-ndaki-asal-say-lar-bulan-program-Paralelle-tirilmi-
+
